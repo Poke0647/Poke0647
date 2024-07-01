@@ -1,3 +1,4 @@
+<!---
 - 👋 Hi, I’m @Poke0647
 - 🌱 I’m currently learning
 - 📫 How to reach me: vk.com/pav_is or in Discord Póke0647
